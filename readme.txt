@@ -4,3 +4,5 @@ Instead, i want to get a chance in native companies.
 lol
 i am so sick of myself.
 i think i am useless
+I know I was stupid.
+So I will try to change my state.
